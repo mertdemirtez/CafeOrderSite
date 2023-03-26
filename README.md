@@ -22,5 +22,5 @@
 - 
 -My LinkedIn profile is: https://www.linkedin.com/in/mertdemirtez/
 -
--My Instagram handle is: www.instagram.com/mertdemirofficial/
+-My Instagram account is: www.instagram.com/mertdemirofficial/
 -
