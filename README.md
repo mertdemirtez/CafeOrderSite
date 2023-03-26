@@ -5,6 +5,9 @@
 ⭐ This GitHub repository contains some of the projects that I worked on when I was a sophomore computer engineering student. ⭐
  
  ⭐ You can also contribute to and support this project. Have a nice day, everyone! ⭐
+ 
+ 
+![nigdekahvecisi](https://user-images.githubusercontent.com/101717064/227790365-b51aa345-7e2f-4656-bc1d-abf67461d741.png)
 
 ![portfolio-2](https://user-images.githubusercontent.com/101717064/227787815-c961509a-ee04-41a5-b95f-5687cfb4a0bf.jpg)
 
