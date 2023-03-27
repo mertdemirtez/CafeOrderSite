@@ -21,7 +21,7 @@
 
 
 # 🅲🅾🅽🆃🅰🅲🆃 🅵🅾🆁 🅼🅴
--My personal website is: www.mertdemir.rf.gd
+-My personal website is: www.mertdemirtez.com
 - 
 -My LinkedIn profile is: https://www.linkedin.com/in/mertdemirtez/
 -
