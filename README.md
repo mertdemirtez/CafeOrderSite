@@ -15,9 +15,10 @@
 
 ![Ekran görüntüsü 2023-04-03 060111](https://user-images.githubusercontent.com/101717064/229402283-85635e9e-6ba8-4307-82d5-8e6df77f67c7.png)
 
-![portfolio-details-6](https://user-images.githubusercontent.com/101717064/227787827-967b7758-db1f-4645-b2a6-25d7d7bbface.jpg)
+![Ekran görüntüsü 2023-04-03 060111](https://user-images.githubusercontent.com/101717064/229402696-f9308b88-b132-4623-bada-9b61f6abf268.png)
 
-![portfolio-details-7](https://user-images.githubusercontent.com/101717064/227787832-a829bacd-b32b-4dff-a157-98871d9fb044.jpg)
+![Ekran görüntüsü 2023-04-03 060503](https://user-images.githubusercontent.com/101717064/229402702-39d2d125-8ab0-43b8-97a0-c75515b2cca0.png)
+
 
 
 # 🅲🅾🅽🆃🅰🅲🆃 🅵🅾🆁 🅼🅴
