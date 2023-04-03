@@ -7,16 +7,13 @@
  ⭐ You can also contribute to and support this project. Have a nice day, everyone! ⭐
  
  
- 
-![Ekran görüntüsü 2023-04-03 060503](https://user-images.githubusercontent.com/101717064/229402313-625176af-b0d6-42f7-a4d2-fe23690ad80d.png)
- 
 ![Ekran görüntüsü 2023-04-03 055956](https://user-images.githubusercontent.com/101717064/229402249-02be7b38-6d08-4612-822b-703c35ae56e8.png)
+
+![Ekran görüntüsü 2023-04-03 060503](https://user-images.githubusercontent.com/101717064/229402417-20a71f0a-34d5-4bac-b915-c1bd8796df97.png)
 
 ![Ekran görüntüsü 2023-04-03 060039](https://user-images.githubusercontent.com/101717064/229402264-2b8ff539-8c97-4234-9137-bc8b0a4e960b.png)
 
 ![Ekran görüntüsü 2023-04-03 060111](https://user-images.githubusercontent.com/101717064/229402283-85635e9e-6ba8-4307-82d5-8e6df77f67c7.png)
-
-![portfolio-details-5](https://user-images.githubusercontent.com/101717064/227787824-33ccff2c-6f28-4454-86f3-c0c744ae46e7.jpg)
 
 ![portfolio-details-6](https://user-images.githubusercontent.com/101717064/227787827-967b7758-db1f-4645-b2a6-25d7d7bbface.jpg)
 
